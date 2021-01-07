@@ -23,7 +23,7 @@ WARZONE RAT 1.84 CRACKED
 
 1. Download the tool & run it.
 
-To learn more please watch this video: https://youtu.be/gkXSMIf_uNE
+To learn more please watch this video (To see this video you need to subscribe first and send me your e-mail address in https://t.me/ctoslab): https://youtu.be/gkXSMIf_uNE
 ### 💰 Donate
 
 If you like my work, consider buying me a coffee :)
